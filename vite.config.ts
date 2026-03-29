@@ -7,14 +7,15 @@ export default defineConfig({
     react(),
     VitePWA({
       registerType: 'autoUpdate',
-      includeAssets: ['favicon.ico', 'apple-touch-icon.png', 'masked-icon.svg'],
+      injectRegister: 'auto',
       manifest: {
-        name: 'Exodus',
-        short_name: 'Exodus',
-        description: 'Application PWA Exodus',
+        name: 'Pâques',
+        short_name: 'Pâques',
+        description: 'Parcours chrétien de Pâques',
         theme_color: '#ffffff',
         background_color: '#ffffff',
         display: 'standalone',
+        start_url: '/',
         icons: [
           {
             src: '/pwa-192x192.png',
