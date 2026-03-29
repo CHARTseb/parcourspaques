@@ -12,10 +12,10 @@ export default defineConfig({
         name: 'Pâques',
         short_name: 'Pâques',
         description: 'Parcours chrétien de Pâques',
+        start_url: '/',
+        display: 'standalone',
         theme_color: '#ffffff',
         background_color: '#ffffff',
-        display: 'standalone',
-        start_url: '/',
         icons: [
           {
             src: '/pwa-192x192.png',
