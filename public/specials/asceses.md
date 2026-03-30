@@ -1,51 +1,146 @@
-# Les Ascèses
+# Les Disciplines de Pâques
 
-L’ascèse peut être simplement définie comme des actes d’abnégation. Tous les chrétiens sont appelés à pratiquer l’ascèse d’une manière ou d’une autre, même en dehors du Carême.
+L’ascèse peut être simplement définie comme des actes d’abnégation.  
+Tous les chrétiens sont appelés à vivre une forme d’ascèse, non pas pour se priver, mais pour grandir en liberté.
 
-Au-delà de la croissance de la liberté et de la maîtrise de soi, dans Exodus90, vous pratiquerez l’ascèse de deux manières : comme **pénitence** et comme **offrande**. L’ascèse nous aide à pratiquer la pénitence pour notre propre péché par des actions extérieures concrètes. Elle nous aide également à faire des offrandes tangibles pour le bien des autres.
+Elle nous aide à nous détacher de ce qui nous encombre, pour nous attacher davantage à Dieu.
 
-L’ascèse exposée dans Exodus90 aide chaque homme à se détacher des choses du monde. Les disciplines ascétiques couvrent la plupart des aspects de notre vie quotidienne pour nous éviter de passer d’une dépendance temporelle à une autre.
+Dans ce parcours, hommes et femmes ayant vécu un chemin comme Pâques ou Magnify sont invités à vivre ces disciplines comme :
+- une **offrande**  
+- un **chemin de liberté intérieure**  
 
-En plus des disciplines de la prière quotidienne, les disciplines ascétiques nous aident à passer des choses de ce monde à Dieu — de ce qui ne satisfera jamais vraiment, au seul qui le fasse.
-
----
-
-## Disciplines ascétiques d’Exodus90
-
-En accord avec les disciplines de la prière et de la fraternité, voici les disciplines ascétiques d’Exodus90.
-
-<div class="twoCols">
-  <div class="panel">
-    <div class="panelTitle">Consommations</div>
-
-- Abstenez-vous d’alcool.
-- Abstenez-vous des desserts et des sucreries.
-- Abstenez-vous de manger entre les repas (pas de goûter).
-- Abstenez-vous des boissons gazeuses ou sucrées.  
-  *(Le lait blanc, le café noir et le thé noir sont autorisés en fonction de votre consommation habituelle.)*
-- Abstenez-vous de la télévision, des films ou des sports télévisés.
-- Abstenez-vous des jeux vidéo.
-- Abstenez-vous des achats non essentiels.
-- Jeûnez les mercredis et vendredis.  
-  *(Abstenez-vous de manger de la viande et ne mangez qu’un seul repas complet, ainsi que deux petits repas qui, ensemble, ne correspondent pas à un repas complet.)*
-
-  </div>
-
-  <div class="panel">
-    <div class="panelTitle">Activités</div>
-
-- N’écoutez que de la musique qui élève l’âme vers Dieu.
-- N’utilisez l’ordinateur que pour le travail, les cours ou des tâches essentielles (par exemple, payer des factures).
-- N’utilisez les appareils mobiles que pour les communications essentielles ; supprimez les SMS, les applications et l’utilisation d’Internet non essentiels.
-- Prenez de courtes douches froides.
-- Ayez une pratique sportive régulière et intense (environ 3×/semaine).
-- Dormez au moins sept heures par nuit.
-
-  </div>
-</div>
+L’ascèse ne prend sens que si elle est vécue avec la prière et la fraternité.
 
 ---
 
-> **Point clé**  
-> Celui qui vivrait l’ascèse ci-dessus sans vivre la vie de prière et de fraternité ferait quelque chose, mais il ne ferait pas *Exodus 90*.  
-> Exodus 90 est un exercice de **prière**, d’**ascèse** et de **fraternité** : comme nous avons besoin des trois pour vivre la vie chrétienne, nous avons également besoin des trois pour faire *Exodus 90*.
+## 🌿 Une vie nouvelle à vivre
+
+Jésus nous fait passer de la mort à la vie par sa Résurrection.  
+Il nous appelle à vivre autrement, dans une liberté nouvelle.
+
+Par notre communion avec lui, nos vies peuvent être transformées :
+- plus libres  
+- plus joyeuses  
+- plus tournées vers les autres  
+
+Nous sommes envoyés en mission pour témoigner de cette vie nouvelle.
+
+---
+
+## 📖 Un chemin pendant la saison de Pâques
+
+Durant ce temps, nous allons :
+
+- Méditer la Parole de Dieu (notamment le Deutéronome)
+- Approfondir notre relation avec Dieu
+- Discerner notre mission personnelle
+- Mettre en place des habitudes concrètes de vie nouvelle
+
+Ce chemin n’est pas une fin…  
+C’est un commencement.
+
+---
+
+## ⚖️ Les disciplines concrètes
+
+### 🍽️ Consommation
+
+- Une consommation d’alcool ajustée à une vie chrétienne libre et consciente  
+- Une consommation de desserts et sucreries modérée  
+- Éviter de manger entre les repas  
+- Une utilisation des écrans réfléchie et mesurée  
+- Une pratique des jeux vidéo adaptée  
+- Jeûner les vendredis (abstinence de viande)
+
+---
+
+### 🏃‍♂️ Vie quotidienne
+
+- Écouter une musique qui élève l’âme  
+- Adapter l’usage des réseaux sociaux et du téléphone  
+- Avoir une activité physique régulière (idéalement 3 fois par semaine)  
+- Dormir au moins 7 heures par nuit  
+
+👉 **Pour les hommes uniquement (optionnel)**  
+- Possibilité de garder de courtes douches froides  
+
+---
+
+## 🕊️ Des piliers pour grandir
+
+### 🙏 20 minutes de prière quotidienne
+
+Prendre un temps de silence avec Dieu chaque jour.  
+C’est là que la transformation commence.
+
+---
+
+### 🎯 Vivre sa mission
+
+Chacun est appelé à vivre sa mission :
+- dans sa vie quotidienne  
+- dans sa famille  
+- dans son travail  
+
+Dieu agit à travers vous.
+
+---
+
+### 💧 Renouveler son baptême
+
+Se rappeler :
+- que nous sommes enfants de Dieu  
+- que nous sommes appelés à vivre pour Lui  
+
+---
+
+### 🔁 Construire une habitude
+
+Choisir **une habitude concrète** pendant ce temps :
+- pour grandir  
+- pour rester libre  
+- pour avancer  
+
+---
+
+### 🤝 Vivre la fraternité
+
+- Se retrouver régulièrement  
+- Partager des moments de joie  
+- Se soutenir  
+
+La joie de Pâques se vit ensemble.
+
+---
+
+### ✝️ Le vendredi
+
+Un jour pour :
+- se rappeler la Croix  
+- offrir un sacrifice  
+- grandir dans l’amour  
+
+---
+
+### 🌞 Le dimanche
+
+Le jour du Seigneur :
+- repos  
+- joie  
+- célébration  
+
+Un jour pour vivre déjà la vie du ciel.
+
+---
+
+## ✨ Conclusion
+
+Pâques n’est pas seulement une fête.  
+C’est un **mode de vie**.
+
+Ce temps nous est donné pour :
+- célébrer  
+- grandir  
+- nous transformer  
+
+**Bienvenue dans cette vie nouvelle.**

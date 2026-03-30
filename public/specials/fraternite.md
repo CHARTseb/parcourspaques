@@ -1,34 +1,61 @@
 # La Fraternité
 
-Cet aspect essentiel de la vie chrétienne est l’un des aspects les plus évidents et pourtant les plus négligés de notre vie chrétienne aujourd’hui. Lorsque nous nous mettons au défi de faire ce qui est bien et que nous nous tenons mutuellement responsables de le faire, de grands fruits se produisent constamment. De grands fruits, pas seulement pour nous, mais pour toute notre communauté.
+Cet aspect essentiel de la vie chrétienne est l’un des plus évidents… et pourtant souvent négligé aujourd’hui. Lorsque nous choisissons de faire le bien et que nous nous aidons à rester fidèles à ce choix, de grands fruits apparaissent. Des fruits pour chacun de nous, mais aussi pour toute notre communauté.
 
-D’un autre côté, lorsque nous nous isolons et ne sommes tenus responsables envers personne, nos vies deviennent un gâchis égoïste et notre communauté en souffre.
+À l’inverse, lorsque nous nous isolons et que nous ne rendons de comptes à personne, nos vies se referment sur elles-mêmes et notre communauté en souffre.
 
-Pendant Exodus90, vous vivrez la fraternité avec **4–6** autres hommes de votre région. Ce n’est pas une fraternité chaleureuse et douillette — « je vais bien, vous allez bien, alors nous allons tous bien ». C’est une fraternité authentique du type « le temps est venu », à genoux sur le marbre. Une fraternité où les hommes sortent de leur zone de confort et se retrouvent dans la lumière. Une fraternité où la responsabilité engendre une masculinité authentique.
+Dans ce parcours, vous vivrez la fraternité avec **4 à 6 personnes** de votre région, hommes et femmes ayant vécu un parcours comme Pâques ou Magnify.  
+Ce n’est pas une fraternité confortable du type « tout va bien ».  
+C’est une fraternité **vraie**.
 
-En tant que fraternité, vous vous réunirez chaque semaine pour une réunion de fraternité. Ces réunions durent généralement une heure, mais peuvent être réalisées en trente minutes avec le **Guide des réunions hebdomadaires**. De plus, vous vous jumellerez avec un homme de votre fraternité. Cet homme est votre **ancre** et vous êtes la sienne.
-
-Chaque jour, vous vous contacterez par un texto, un appel ou en personne. Comme une ancre dans l’escalade ou dans l’alpinisme, vous devrez être une ancre solide et fiable pour votre frère. S’il commence à tomber, vous devez être prêt à supporter son poids, de peur que vous ne touchiez le sol tous les deux. La vie chrétienne n’est pas facile. Vous avez besoin de frères et ils ont besoin de vous.
-
----
-
-> **À faire chaque jour**
->
-> - Assistez aux réunions hebdomadaires de la fraternité.
-> - Prenez contact quotidiennement avec votre ancre.
+Une fraternité où l’on ose se dire les choses.  
+Une fraternité où l’on sort de sa zone de confort.  
+Une fraternité où chacun choisit de vivre dans la lumière.  
+Une fraternité où la responsabilité fait grandir en profondeur.
 
 ---
 
-<div class="callout">
-  <div class="calloutTitle">Et après ?</div>
+## 🤝 Concrètement
 
-Les recherches sur la neuroplasticité du cerveau nous montrent que briser les vieilles habitudes et en construire de nouvelles est non seulement possible mais réalisable pour ceux qui le font pendant **90 jours** et plus. Les quatre-vingt-dix jours d’Exodus ne sont pas une ligne d’arrivée, mais une **ligne de départ**.
+Chaque semaine, vous vous retrouverez pour une **réunion de fraternité**.  
+Ces rencontres durent environ une heure (ou peuvent être plus courtes grâce au guide proposé).
 
-Au cours de ces quatre-vingt-dix jours, vous vous purgerez des péchés et des vices, débarrasserez votre vie des ordures et ouvrirez un espace pour quelque chose de nouveau, de bien meilleur. Au cours de ces quatre-vingt-dix jours, vous ferez de l’espace pour que votre formation commence — de l’homme que vous étiez autrefois à l’homme que vous désirez vraiment être.
+En parallèle, vous serez en lien avec une personne de votre fraternité : votre **ancre**.
 
-Pendant Exodus 90, vous retrouverez votre identité en tant que fils du Père. Mais grandir dans la confiance dans votre relation avec Dieu et devenir un homme qui vit pour les autres, un homme qui est le chef spirituel de sa famille et un homme qui peut proclamer hardiment les paroles de saint Paul — « Ce n’est plus moi qui vis, mais c’est le Christ qui vit en moi » — exige une pratique, une responsabilité, une structure et des conseils continus.
+Chaque jour, vous prendrez contact :
+- par message  
+- par appel  
+- ou en personne  
 
-C’est le travail de formation qui commencera à partir du **Jour 91** de votre Exode.
+Comme en montagne, une ancre sert à tenir bon quand l’autre vacille.  
+Vous êtes appelés à être cette présence fidèle et solide pour l’autre.
 
-Le chemin vers la vie que vous voulez vivre ne s’arrête pas après ces 90 jours ; ce n’est que le début. **Bienvenue dans la Fraternité Exodus.**
-</div>
+La vie chrétienne n’est pas un chemin solitaire.  
+Vous avez besoin des autres… et les autres ont besoin de vous.
+
+---
+
+## 📅 À vivre concrètement
+
+- Participer aux rencontres hebdomadaires  
+- Prendre des nouvelles de son ancre chaque jour  
+
+---
+
+## 🌱 Et après ?
+
+Les recherches sur la neuroplasticité nous montrent qu’il est possible de transformer durablement sa vie en changeant ses habitudes sur la durée.
+
+Mais ce parcours n’est pas une ligne d’arrivée.  
+C’est une **ligne de départ**.
+
+Vous avez commencé à redécouvrir votre identité profonde : celle d’un fils ou d’une fille bien-aimé(e) du Père.
+
+Mais grandir dans cette relation, devenir une personne tournée vers les autres, ancrée, libre, et capable de vivre pleinement l’Évangile… demande du temps, de la fidélité et un cadre.
+
+C’est un chemin de transformation qui commence aujourd’hui.
+
+Le chemin vers la vie à laquelle vous êtes appelés ne s’arrête pas ici.  
+Il ne fait que commencer.
+
+**Bienvenue dans la Fraternité de Pâques.**
