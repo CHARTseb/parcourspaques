@@ -1,19 +1,82 @@
 # La Prière
 
-En tant qu’hommes, nous sommes appelés à participer d’une manière unique à la mission du Christ. Êtes-vous le leader spirituel que vous devez être ? Vos amis et votre famille peuvent-ils faire confiance aux décisions que vous prenez ? Peuvent-ils avoir confiance que vous les conduirez là où le Seigneur les appelle à aller, dans les bons comme dans les mauvais moments ?
+Nous sommes tous appelés à participer à la mission du Christ, chacun à notre place.
 
-Sans une vie fermement enracinée dans la prière, il est presque impossible de savoir où Dieu vous conduit. Sans une vie de prière quotidienne, il est encore plus difficile d’être sûr de savoir où le Seigneur vous demande de conduire vos amis et votre famille à un moment donné. Il est temps de commencer à prier.
+Prenez un instant pour vous poser cette question :  
+Est-ce que ma vie est vraiment guidée par Dieu ?
 
-Pendant Exodus 90, vous développerez une habitude de prière quotidienne. Vous vous engagez à prier une **heure sainte** chaque jour. Si vous ne pouvez pas faire une heure sainte entière un jour donné, faites tout ce que vous pouvez, avec un minimum de **vingt minutes de prière silencieuse** à la fois pour parler et écouter activement le Seigneur.
-
-De plus, vous lirez le livre de l’Exode petit à petit chaque jour. L’Écriture sera accompagnée d’une réflexion quotidienne. La réflexion vous aidera à comprendre l’Écriture de ce jour-là, à comprendre où vous en êtes dans le voyage spirituel et à vous conduire dans le temps de prière du jour avec notre Seigneur.
-
-Restez fidèle à la prière quotidienne et vous grandirez dans votre capacité à entendre Dieu parler. Cette grâce et cette capacité vous aideront à vivre la mission spirituelle à laquelle notre Seigneur vous appelle en tant qu’homme.
+Est-ce que les personnes qui m’entourent peuvent s’appuyer sur moi ?  
+Est-ce que mes choix sont éclairés par la prière ?
 
 ---
 
-> **À faire chaque jour**
->
-> - Faites une **heure sainte** quotidienne.
-> - Lisez les **Écritures** et les **réflexions** fournies chaque jour.
+Sans une vie enracinée dans la prière, il devient difficile de discerner où Dieu nous appelle.  
+Et encore plus difficile de guider les autres avec justesse.
 
+C’est dans la prière que tout commence.
+
+---
+
+## 🙏 Une rencontre quotidienne
+
+Pendant ce temps de Pâques, vous êtes invités à prendre **20 minutes de prière silencieuse chaque jour**.
+
+Si vous pouvez donner plus de temps, faites-le librement.  
+Mais l’essentiel est la fidélité, pas la performance.
+
+Ces 20 minutes sont un temps pour :
+- parler à Dieu  
+- mais aussi **l’écouter**
+
+---
+
+## 🌿 Une prière qui transforme
+
+La joie de Pâques se vit profondément dans la prière.
+
+Dans le silence :
+- nous trouvons la paix  
+- nous accueillons la vie nouvelle  
+- nous laissons Dieu nous transformer  
+
+Peu à peu, Dieu agit en nous et nous guide.
+
+---
+
+## 📖 Nourrir sa prière
+
+Chaque jour :
+- lisez les **Écritures proposées**  
+- prenez un temps de **réflexion personnelle**  
+
+La Parole de Dieu éclaire votre chemin et nourrit votre relation avec Lui.
+
+---
+
+## 🌱 Grandir dans l’écoute
+
+En restant fidèle à ce rendez-vous quotidien, vous apprendrez peu à peu à reconnaître la voix de Dieu.
+
+Cette relation vivante vous aidera à :
+- faire des choix justes  
+- avancer avec confiance  
+- vivre votre mission au quotidien  
+
+---
+
+## 📅 À vivre chaque jour
+
+- Prendre **20 minutes de prière silencieuse**  
+- Lire les **Écritures et la réflexion du jour**  
+
+---
+
+## ✨ Conclusion
+
+La prière n’est pas une obligation.  
+C’est une **rencontre**.
+
+Un lieu où Dieu vous attend, chaque jour, pour vous parler, vous relever et vous envoyer.
+
+Prenez ce temps.  
+Tout commence ici.
