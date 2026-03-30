@@ -1,34 +1,107 @@
-# Parcours Exodus
-## 90 jours avec Jésus
+# Parcours de Pâques  
+## 50 jours pour vivre la Résurrection
 
-Il s’agit d’un voyage de 90 jours à travers le Livre de l’Exode, qui permet de mieux comprendre les similitudes que nous partageons avec les anciens Israélites et de trouver notre chemin vers la libération de nos propres **« pharaons modernes »** — ces obstacles qui nous empêchent de vivre une véritable unité avec Dieu.
+Ce parcours est une invitation à vivre pleinement le temps de Pâques, de la Résurrection jusqu’à la Pentecôte.
 
-Pendant 90 jours, vous vous concentrez sur trois piliers fondamentaux : **la prière**, **l’ascétisme** et **la fraternité** — un modèle dont ont témoigné, il y a des siècles, les Pères du désert de l’Église primitive.
+Pendant **50 jours**, vous êtes appelés à entrer dans une vie nouvelle :  
+une vie plus libre, plus joyeuse, plus tournée vers Dieu et vers les autres.
 
----
-
-## La prière
-
-Les participants à Exodus90 apprennent la discipline de la prière quotidienne en suivant l’histoire des Israélites qui ont quitté l’esclavage du péché pour la liberté de la Terre promise.
-
-Avec la lecture quotidienne du Livre de l’Exode, la méditation et l’écriture, les hommes découvriront comment l’esclavage empêche un plus grand amour de Dieu et du prochain.
+Ce chemin n’est pas une performance.  
+C’est une transformation.
 
 ---
 
-## Les ascèses
+## 🌿 Un passage vers la liberté
 
-Nous ne pouvons pas dire **« oui »** à Dieu tant que nous n’avons pas dit **« non »** au monde et à son confort.
+Par sa Résurrection, Jésus nous fait passer :
+- de la mort à la vie  
+- de l’enfermement à la liberté  
+- de la peur à la confiance  
 
-Pendant Exodus 90, les hommes renoncent à certains conforts et prennent leur croix. L’ascétisme ne consiste pas à prouver quelque chose à soi-même ou aux autres, et il ne s’agit certainement pas de gagner la grâce de Dieu. Même si c’est une particularité d’Exodus90, ce n’est pas son but.
+Mais cette liberté ne se vit pas seule.
 
-Les actes d’ascèse sont un moyen en vue d’un but bien plus grand : **l’union avec Dieu** et avec ceux qu’Il nous a confiés.
+Elle s’apprend, se choisit, et se construit jour après jour.
 
 ---
 
-## La fraternité
+## 🔥 Trois piliers pour avancer
 
-Beaucoup d’hommes ont des amis avec qui ils peuvent prendre une bière ou regarder du sport. Mais très peu d’hommes ont de vrais frères : des hommes qui les connaissent vraiment et avec qui ils peuvent être honnêtes et vulnérables.
+Tout au long de ces 50 jours, vous allez vous appuyer sur trois piliers essentiels :
 
-Avec Exodus, vous formerez une fraternité avec **4 à 6** autres hommes. L’un d’eux sera votre **point d’ancrage** : vous vous entraidez chaque jour.
+### 🙏 La prière
 
-La fraternité existe pour **soutenir**, **encourager**, **challenger** et faire preuve de **miséricorde**.
+Chaque jour, vous prenez un temps pour vous tourner vers Dieu.
+
+À travers :
+- la lecture de la Parole  
+- le silence  
+- la prière personnelle  
+
+Vous apprenez à écouter Dieu et à vous laisser guider.
+
+---
+
+### ⚖️ Les disciplines
+
+Choisir la liberté, c’est aussi faire des choix concrets.
+
+Les disciplines vous aident à :
+- vous détacher de ce qui vous encombre  
+- retrouver de la clarté intérieure  
+- grandir dans la maîtrise de soi  
+
+Elles ne sont pas une contrainte, mais un chemin vers plus de liberté.
+
+---
+
+### 🤝 La fraternité
+
+Vous ne marchez pas seul.
+
+Vous avancez avec une petite fraternité :
+**4 à 6 personnes**, hommes et femmes ayant vécu un parcours comme Pâques ou Magnify.
+
+Une fraternité pour :
+- se soutenir  
+- s’encourager  
+- grandir ensemble  
+- rester fidèle  
+
+---
+
+## 🌱 Une dynamique de croissance
+
+Pendant ces 50 jours :
+
+- vous construisez de nouvelles habitudes  
+- vous apprenez à vivre autrement  
+- vous vous ouvrez à la mission que Dieu vous confie  
+
+Ce temps n’est pas une fin.
+
+C’est le début d’une vie renouvelée.
+
+---
+
+## 🕊️ Jusqu’à la Pentecôte
+
+Ce chemin vous conduit vers la Pentecôte :
+le don de l’Esprit Saint.
+
+C’est Lui qui :
+- vous transforme intérieurement  
+- vous fortifie  
+- vous envoie en mission  
+
+---
+
+## ✨ Conclusion
+
+Ce parcours est une invitation à :
+- vivre la joie de Pâques  
+- grandir en liberté  
+- devenir pleinement vous-même  
+
+Un pas après l’autre.
+
+**Bienvenue dans ce chemin de vie.**
