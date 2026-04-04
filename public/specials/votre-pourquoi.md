@@ -1,113 +1,120 @@
 # Quel est votre **POURQUOI** ?
 
-Commencez le Carême avec une intention claire.
+Commencez ce parcours de Pâques avec une intention claire.
 
 Saint Dominique a dit un jour :
 
-> « L’homme qui maîtrise ses passions est le maître du monde.  
+> « Celui qui maîtrise ses passions est maître de lui-même.  
 > Nous devons soit les gouverner, soit être gouvernés par elles. »
 
-Pourquoi êtes-vous venu à cet exercice spirituel de l’Exode ?
+Pourquoi avez-vous choisi de vivre ce parcours ?
 
-Presque tous les hommes qui s’engagent dans l’Exode recherchent un **nouveau degré de liberté**. Ils sentent, parfois confusément, qu’ils ne sont pas aussi libres qu’ils devraient l’être pour aimer, servir et se donner pleinement — à Dieu comme à leur famille.
+Beaucoup de personnes qui s’engagent dans ce chemin désirent **plus de liberté**.  
+Elles ressentent, parfois confusément, qu’elles ne sont pas aussi libres qu’elles pourraient l’être pour aimer, servir et se donner pleinement — à Dieu comme aux autres.
 
-Mais soyons honnêtes et précis.
+Mais prenons le temps d’être vrais.
+
+---
 
 ## Nommer ses chaînes
 
-Nous sommes souvent asservis de multiples manières, parfois discrètes, parfois évidentes.  
+Nous pouvons être attachés à différentes choses, parfois discrètement, parfois de manière évidente.
+
 Par exemple :
 
-- le sport
-- le téléphone, les messages, les réseaux
-- le travail
-- les écrans, les vidéos, les jeux
-- la nourriture, l’alcool, la caféine
-- le tabac
-- l’argent
-- l’image de soi, le regard des autres
-- le pouvoir, le contrôle
-- la pornographie
-- le matérialisme
+- le téléphone, les messages, les réseaux  
+- le travail  
+- les écrans, les vidéos, les jeux  
+- la nourriture, l’alcool, la caféine  
+- l’argent  
+- l’image de soi, le regard des autres  
+- le besoin de contrôle  
+- le confort  
+- certaines habitudes ou comportements  
 
 Cette liste n’est **ni exhaustive**, ni accusatrice.  
-Elle est un **outil de discernement**.
+Elle est là pour aider à **discerner**.
 
-Prenez le temps de la parcourir lentement.  
-Demandez-vous avec sincérité :
+Prenez le temps de vous demander :
 
-- Qu’est-ce qui me domine ?
-- Qu’est-ce qui m’empêche d’aimer librement ?
-- Qu’est-ce qui affaiblit ma disponibilité intérieure ?
+- Qu’est-ce qui prend trop de place dans ma vie ?  
+- Qu’est-ce qui m’empêche d’aimer librement ?  
+- Qu’est-ce qui limite ma disponibilité intérieure ?  
 
-Soyez honnête.  
-Avec vous-même.  
-Avec vos frères.  
-Avec le Seigneur.
+Soyez honnête :
+- avec vous-même  
+- avec votre fraternité  
+- avec Dieu  
 
-Cette honnêteté est une **condition essentielle** de la liberté.
+Cette vérité est un **point de départ vers la liberté**.
+
+---
 
 ## Aller plus loin que le renoncement
 
-Nommer une dépendance ou un attachement est un bon début.  
-Mais ce ne sera pas suffisant pour tenir jusqu’à Pâques.
+Identifier une difficulté est important.  
+Mais pour avancer dans la durée, la volonté seule ne suffit pas.
 
-Pour persévérer, il faut quelque chose de plus fort que la simple volonté.
+Ce qui transforme profondément… c’est **l’amour**.
 
-Il faut **l’amour**.
+Vous êtes invité à nommer une ou plusieurs personnes :
+- que vous aimez  
+- pour lesquelles vous souhaitez grandir  
 
-Vous êtes donc invité à nommer **quelqu’un** — une ou plusieurs personnes — pour qui vous êtes prêt à devenir libre.
-
-L’amour est une force puissante.  
-Il pousse un homme bien au-delà de ce qu’il croyait possible.
+L’amour donne une force que l’on ne soupçonnait pas.
 
 Regardez la croix.  
-Elle dit tout.
+Elle en est la preuve.
+
+---
 
 ## Écrire votre « pourquoi »
 
-Tout au long des quarante jours — et même au-delà — vous serez invité à revenir à votre *pourquoi*.
+Pendant ces **50 jours de Pâques**, vous serez invité à revenir régulièrement à votre *pourquoi*.
 
-Prenez donc ce temps d’écriture **au sérieux**.
+Prenez ce temps d’écriture au sérieux.
 
-Votre « pourquoi » écrit doit respecter **quatre points essentiels** :
+Votre « pourquoi » peut s’appuyer sur **quatre points essentiels** :
 
-1. Nommer une dépendance ou un attachement dont vous souhaitez être libéré.
-2. Nommer une ou plusieurs personnes que vous aimez et pour lesquelles vous voulez être libre.
-3. Expliquer en quoi votre liberté sera au service concret de ces personnes.
-4. Dire comment cette liberté vous aidera à accomplir le plan de Dieu pour votre vie.
+1. Nommer ce que vous souhaitez transformer ou laisser derrière vous  
+2. Nommer les personnes pour lesquelles vous voulez grandir  
+3. Expliquer concrètement en quoi votre liberté va changer votre manière d’aimer  
+4. Dire comment cette liberté vous aide à répondre à l’appel de Dieu  
 
-### Exemples
+---
 
-- Exemple faible :  
-  « Je veux être plus présent aux gens. »
+## Exemples
 
-- Exemple solide :  
-  « Je veux rompre mon attachement excessif à mon téléphone afin d’être pleinement présent à ma femme et à mes enfants, pour les aimer avec un cœur libre et être un homme digne de confiance, fidèle à l’appel que Dieu m’a adressé. »
+- Exemple vague :  
+  « Je veux être plus présent. »
 
-Le premier exemple est vague et peu engageant.  
-Le second est **clair**, **incarné**, et donne une raison valable de combattre.
+- Exemple concret :  
+  « Je veux me libérer de mon usage excessif du téléphone pour être plus disponible et attentif aux personnes que j’aime, et avancer dans la mission que Dieu me confie. »
+
+Le premier est flou.  
+Le second est **clair**, **incarné** et donne une vraie direction.
+
+---
 
 ## Faire un choix courageux
 
-Il est probable que plusieurs dépendances vous viennent à l’esprit.  
+Plusieurs points peuvent vous venir à l’esprit.
+
 C’est normal.
 
-Faites néanmoins l’effort de **choisir une ou deux priorités**, pas plus.
+Choisissez cependant **une ou deux priorités maximum** :
+- ce qui vous freine le plus  
+- ou ce qui revient le plus souvent  
 
-Dans la mesure du possible, nommez :
-- l’obstacle le plus constant à votre liberté,
-- ou le péché habituel le plus grave, s’il existe.
-
-Ce choix demandera du courage, mais il apportera de la clarté.
+Ce choix demande du courage, mais il apporte de la clarté.
 
 > **Rappelez-vous :**  
 > Dieu désire votre liberté encore plus que vous.
 
-> **Prenez un temps de silence.**  
-> Éloignez votre téléphone.  
+> Prenez un temps de silence.  
+> Éloignez-vous des distractions.  
 > Placez-vous en présence de Dieu.  
-> Demandez-lui la grâce de voir clair… et d’oser la vérité.
+> Demandez-lui la grâce de voir juste… et d’oser la vérité.
 
 ---
 
@@ -116,35 +123,32 @@ Ce choix demandera du courage, mais il apportera de la clarté.
 Prenez un moment seul, sans vous presser.  
 Écrivez simplement, avec des mots vrais.
 
-### Ma dépendance / mon attachement principal
+### Ce que je veux transformer
 
 <span data-editable="dependance"></span>
-> _Exemple : téléphone, nourriture, contrôle, pornographie, confort…_
 
 ---
 
-### Les personnes pour lesquelles je veux être libre
+### Les personnes pour lesquelles je veux grandir
 
 <span data-editable="personnes"></span>
-> _Exemple : mon épouse, mes enfants, ma fiancée, mes frères, une personne confiée…_
 
 ---
 
-### Comment ma liberté les servira concrètement
+### Ce que cela changera concrètement
 
 <span data-editable="service"></span>
-> _Exemple : plus de présence, plus d’écoute, plus de patience, plus de disponibilité…_
 
 ---
 
-### Comment cette liberté m’aidera à accomplir le plan de Dieu
+### Ce vers quoi Dieu m’appelle
 
 <span data-editable="plan"></span>
-> _Exemple : être un homme fidèle, un père juste, un disciple disponible…_
 
 ---
 
-### Mon **POURQUOI** (en une ou deux phrases)
+### Mon **POURQUOI**
 
 <span data-editable="pourquoi"></span>
-> _« Je veux être libre de … afin de … pour … »_
+
+> « Je veux avancer vers … pour … afin de … »

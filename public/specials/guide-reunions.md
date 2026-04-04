@@ -3,7 +3,7 @@
 ## 1. Commencer par la prière
 
 Cette prière est dite ensemble au début de chaque réunion.  
-Elle unit tous les hommes de l’Exode dans une prière commune et continue à notre Seigneur.
+Elle unit toute la fraternité dans une prière commune et continue à notre Seigneur.
 
 > **Tous :**  
 > « Si quelqu’un veut venir à ma suite, qu’il se renie lui-même,  
@@ -18,7 +18,7 @@ Elle unit tous les hommes de l’Exode dans une prière commune et continue à n
 
 > **Lecteur :**  
 > Seigneur Jésus,  
-> tu nous appelles à être des hommes pour les autres.  
+> tu nous appelles à être des femmes et des hommes pour les autres.  
 >  
 > Tu nous demandes d’abandonner nos vieilles habitudes,  
 > de renoncer à nos désirs égoïstes,  
@@ -27,7 +27,7 @@ Elle unit tous les hommes de l’Exode dans une prière commune et continue à n
 >  
 > Apprends-nous, jour après jour,  
 > ce que signifie donner notre vie pour nos amis,  
-> par une vie disciplinée de prière, d’ascèse et de fraternité.  
+> par une vie de prière, de discipline et de fraternité.  
 >  
 > Donne-nous le désir de te suivre en toutes choses,  
 > la joie dans l’épreuve  
@@ -36,10 +36,10 @@ Elle unit tous les hommes de l’Exode dans une prière commune et continue à n
 > **Tous :**  
 > Merci, Seigneur Jésus, pour le don de cette fraternité.  
 >  
-> Puisses-tu continuer à agir à travers mes frères  
-> pour m’encourager et me reprendre,  
-> afin que je devienne l’homme que tu m’appelles à être :  
-> un homme pour les autres.
+> Puisses-tu continuer à agir à travers nos frères et sœurs  
+> pour nous encourager et nous relever,  
+> afin que nous devenions les personnes que tu nous appelles à être :  
+> des hommes et des femmes pour les autres.
 
 Je vous salue Marie.
 
@@ -49,40 +49,42 @@ Au nom du Père, et du Fils, et du Saint-Esprit. Amen.
 
 ## 2. Rapport de terrain
 
-Chaque homme donne un **rapport bref** sur son expérience de la semaine écoulée.
+Chaque personne donne un **rapport bref** sur son expérience de la semaine écoulée.
 
-Ce rapport doit couvrir **les trois piliers** de l’exercice spirituel :
+Ce rapport couvre **les trois piliers** du parcours :
 
 - **La prière**
-- **L’ascèse** (le « + » et le « − »)
+- **Les disciplines** (les points vécus + et −)
 - **L’aide fraternelle** (l’ancre)
 
-Les lacunes majeures doivent être partagées et discutées.  
-Les lacunes mineures peuvent être simplement reconnues.
+Les difficultés importantes peuvent être partagées et portées ensemble.  
+Les points plus légers peuvent simplement être mentionnés.
 
-La fraternité prend également le temps de **remercier Dieu** pour les bénédictions reçues durant la semaine.
+La fraternité prend aussi le temps de **remercier Dieu** pour les grâces reçues.
 
 ---
 
 ## 3. Les repères quotidiens
 
-Le responsable de la fraternité choisit **un point d’ascèse** parmi les ascèses quotidiennes de la semaine.
+Le responsable de la fraternité choisit **un point concret à travailler** parmi les disciplines de la semaine.
 
-Il anime ensuite un temps d’échange portant notamment sur :
+Il anime un temps d’échange autour de :
 
-- la manière dont chacun vit concrètement cette ascèse ;
-- les difficultés rencontrées ;
-- les ajustements pratiques à mettre en place pour mieux la tenir.
+- la manière dont chacun vit concrètement ce point  
+- les difficultés rencontrées  
+- les ajustements possibles  
 
 ---
 
-## 4. Choisir une ascèse à lever pour le dimanche
+## 4. Choisir un point à alléger pour le dimanche
 
-La fraternité choisit ensemble **une ascèse à lever pour le dimanche** de la semaine.
+La fraternité choisit ensemble **un point à alléger pour le dimanche**.
 
 Exemples :
-- musique,
-- sucre (sans excès, évidemment).
+- musique  
+- sucre (avec mesure)
+
+Le dimanche reste un jour de joie et de liberté.
 
 ---
 
@@ -90,11 +92,11 @@ Exemples :
 
 La réunion se termine par la prière de **saint Michel Archange**, demandant la protection spirituelle :
 
-- de la fraternité,
-- de tous les hommes engagés dans l’Exode,
-- des prêtres,
-- des familles,
-- et pour la sanctification de l’Église.
+- de la fraternité  
+- des personnes engagées dans ce parcours de Pâques  
+- des prêtres  
+- des familles  
+- et pour la sanctification de l’Église  
 
 ### Prière à saint Michel Archange
 
