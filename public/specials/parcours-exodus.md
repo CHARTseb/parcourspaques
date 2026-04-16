@@ -59,7 +59,7 @@ Elles ne sont pas une contrainte, mais un chemin vers plus de liberté.
 Vous ne marchez pas seul.
 
 Vous avancez avec une petite fraternité :
-**4 à 6 personnes**, hommes et femmes ayant vécu un parcours comme Pâques ou Magnify.
+**4 à 6 personnes**, hommes et femmes.
 
 Une fraternité pour :
 - se soutenir  
